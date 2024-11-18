@@ -1,4 +1,4 @@
- I'm Dr. Magdy Makki
+ I'm Dr. Magdy Makky
 - Bachelor of Commerce - Accounting, Cairo University
 - Professional MBA from the Arab Academy for Science, Technology and Maritime Transport. 
 - Doctor of Business Administration from Ain Shams University
